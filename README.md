@@ -1,7 +1,6 @@
 - 👋 Hi, zara here!
 - 👀 I’m interested in fantasy manhwa.
 - 🌱 I’m currently learning about nutrition.
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me, follow me on instagram @zzhrrv
 
 <!---
